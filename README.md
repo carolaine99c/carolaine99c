@@ -10,3 +10,6 @@ meu nome é carolaine dos santos pereira
 carolaine.satos.pereira@escola.pr.gov.br
 
 @carol990c
+
+
+![]()![image](https://github.com/carolaine99c/carolaine99c/assets/109962732/3794f51a-ec37-4b7b-b62e-b9680542f8a9)
